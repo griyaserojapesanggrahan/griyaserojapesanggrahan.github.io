@@ -3,7 +3,7 @@
 Selamat datang di Griya Seroja - destinasi impian untuk kehidupan yang berkualitas di Jakarta Selatan!
 
 Dengan bangga kami menghadirkan kompleks perumahan eksklusif di Griya Seroja, tempat di mana keindahan alam dan kemewahan bertemu dalam harmoni sempurna.
-[IMG]https://i.postimg.cc/7YRJRF76/rumah-rempoa.png[/IMG]
+
 Nikmati gaya hidup yang istimewa dengan berbagai fasilitas modern dan kualitas pembangunan yang tak tertandingi, semua terletak di lokasi yang sangat strategis.
 
 Segera temukan rumah impian Anda di Griya Seroja, di mana kenyamanan, kemewahan, dan aksesibilitas terjamin. Jadikan setiap momen berharga Anda menjadi pengalaman yang tak terlupakan di sini. Selamat datang di dunia baru Anda di Griya Seroja!
