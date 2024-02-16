@@ -22,7 +22,7 @@ Nikmati momen berkualitas bersama keluarga di taman hijau yang asri, atau bersan
 🌟 Lokasi strategis untuk kehidupan yang mudah
 
 Jangan lewatkan kesempatan untuk memiliki rumah impian Anda di Griya Seroja. Hubungi kami sekarang dan mulailah merajut cerita indah hidup Anda bersama kami! 🏡💖
-Hubungi Kami Segera : Telepon/Whatsapp :[https://wa.wizard.id/b73ac1](+62 822–8000–3848)
+Hubungi Kami Segera : Telepon/Whatsapp :- [https://wa.wizard.id/b73ac1] (+62 822–8000–3848)
 
 
 
